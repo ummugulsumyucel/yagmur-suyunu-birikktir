@@ -1,1 +1,1 @@
-# yagmur-suyunu-birikktir
+# yagmur-suyunu-biriktir
